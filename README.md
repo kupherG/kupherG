@@ -8,4 +8,4 @@ Feel free to reach out at *kubag.dev@gmail.com*
 if you have any questions
 
 
-Thank you for visiting my page :)
+Thank you for visiting my page
